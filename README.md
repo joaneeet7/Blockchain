@@ -6,7 +6,7 @@
 
 * Más cursos: [Rutas de aprendizaje Blockchain](https://blockstellart.com)
 
-# [Curso de desarrollo de Videojuegos NFT de la A a la Z](https://blockstellart.com)
+# [Curso Completo de Blockchain de cero a experto](https://blockstellart.com)
 
 * ¿Quieres aprender los pilares y los fundamentos de la tecnología Blockchain?
 
